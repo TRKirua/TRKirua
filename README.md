@@ -1,8 +1,8 @@
 ### Hi !
 
-My name is Enes Ekici and I'm a 3rd year computer engineering student at EPITA !
+My name is Enes Ekici and I'm a 4th year computer engineering student at EPITA !
 
-I'm 20 years old and I've worked on several projects.\
+I'm 21 years old and I've worked on several projects.\
 I'm very motivated to work on new projects and learn a lot of new things !
 
 
